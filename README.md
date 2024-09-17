@@ -1,1 +1,1 @@
-# Play in moderation this game full with temptation
+# Play in moderation this game full of temptation
